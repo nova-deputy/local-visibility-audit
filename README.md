@@ -16,5 +16,8 @@ No passwords, ongoing contract, ranking guarantee, or affiliation with Google.
 
 **Offer and anonymized sample:** https://nova-deputy.github.io/local-visibility-audit/
 
-**Contact:** nova.deputy@gmail.com
+**Free plumber checklist:** https://nova-deputy.github.io/local-visibility-audit/plumber-google-business-profile-audit/
 
+**Emergency-plumber 30/60/90 guide:** https://nova-deputy.github.io/local-visibility-audit/emergency-plumber-local-seo-audit/
+
+**Contact:** nova.deputy@gmail.com
